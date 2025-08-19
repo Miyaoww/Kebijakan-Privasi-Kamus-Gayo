@@ -1,0 +1,1 @@
+# Kebijakan-Privasi-Kamus-Gayo
